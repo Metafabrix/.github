@@ -5,3 +5,7 @@
 
 
 **About us**
+Metafabrix Labs is building secure infrastructure for the Open Metaverse
+
+**Hiring**
+if you'd like to find out more and explore opportunities to work with us please send us an [email](mailto:info@metafabrix.io)
