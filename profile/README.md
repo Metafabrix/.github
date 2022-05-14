@@ -1,7 +1,6 @@
 **Metafabrix Labs**
 
-![Twitter header - 1](https://user-images.githubusercontent.com/79750566/167254111-11626a67-4af3-43a1-af92-e748501fafb3.jpg)
-
+![Metafabrix Labs (2)](https://user-images.githubusercontent.com/79750566/168402967-9794206a-ec7b-47a5-b0fb-0231ff7bf85f.jpg)
 
 
 **About us**
