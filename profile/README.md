@@ -1,6 +1,7 @@
 **Metafabrix Labs**
 
-![Metafabrix Labs (2)](https://user-images.githubusercontent.com/79750566/168402967-9794206a-ec7b-47a5-b0fb-0231ff7bf85f.jpg)
+![Metafabrix Labs (3)](https://user-images.githubusercontent.com/79750566/168440841-eaf9c626-4cf9-44be-90d3-3fb0fd92b48b.jpg)
+
 
 
 **About us**
